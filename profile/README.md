@@ -19,7 +19,7 @@ If you're looking for the most recent version of Vedu APK for 2025, you've come 
 
 | **Feature**          | **Details**                              |
 |----------------------|------------------------------------------|
-| **App Name**         | Vedu APK                                 |
+| **App Name**         | [Vedu APK](https://veduapk.com)                                 |
 | **Version**          | 2025 (Latest)                            |
 | **Size**             | Varies (Approx. 20 MB for Android)       |
 | **Category**         | Entertainment, Streaming, Multimedia     |
